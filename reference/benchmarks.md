@@ -1,6 +1,6 @@
 # Industry Benchmarks — Independent Venue Operators
 
-Source: Compiled from Australian and US hospitality industry standards, BDO Hospitality Benchmarking Reports, and Profitable Hospitality benchmarks. These are targets for healthy independent venues — not averages (averages include struggling businesses).
+Source: Compiled from Australian hospitality industry standards, BDO Australia Hospitality Benchmarking Reports, and Profitable Hospitality benchmarks. These are targets for healthy independent venues — not averages (averages include struggling businesses).
 
 ---
 
